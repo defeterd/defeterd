@@ -5,7 +5,7 @@ sdffgj- 👋 Hi, I’m @defeterd
 - 📫 How to reach me ...
 - 😄 Pronouns: ...1235
 - ⚡ Fun fact: ...re
-sdf
+sdfdsf
 23465ad
 <!---ddd15345
 defeterd/defeterd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
