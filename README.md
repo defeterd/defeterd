@@ -4,7 +4,7 @@ sdffgj- 👋 Hi, I’m @defeterd
 - 💞️ I’m looking to collaborate on ...45
 - 📫 How to reach me ...
 - 😄 Pronouns: ...1235dhf545
-- ⚡ Fun fact: ...refer
+- ⚡ Fun fact: ...refer45
 sdfdsf53
 23465ad63
 <!---ddd15345
