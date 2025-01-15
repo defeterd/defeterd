@@ -3,7 +3,7 @@ sdffgj- 👋 Hi, I’m @defeterd4747
 - 🌱 I’m currently learning ...45
 - 💞️ I’m looking to collaborate on ...45
 - 📫 How to reach me ...45666+
-- 😄 Pronouns: ...1235dhf545555
+- 😄 Pronouns: ...1235dhf545555252
 - ⚡ Fun fact: ...refer45
 sdfdsf53
 232332
