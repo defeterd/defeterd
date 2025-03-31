@@ -1,4 +1,4 @@
-rtyfsdffgj- 👋 Hi, I’m @defeterd4747
+bgttrrtyfsdffgj- 👋 Hi, I’m @defeterd4747
 - 👀 I’m interested in ...dfg
 - 🌱 I’m currently learning ...45
 - 💞️ I’m looking to collaborate on ...45255hghjmhghgrty4474
