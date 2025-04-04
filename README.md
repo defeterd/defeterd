@@ -4,7 +4,7 @@ bgttrrtyfsdffgj- 👋 Hi, I’m @defeterd4747
 - 💞️ I’m looking to collaborate on ...45255hghjmhghgrty4474
 - 📫 How to reach me ...456669878bv59966qwe362263ewwjk,jkasdbnvqew85
 - 😄 Pronouns: ...1235dhf545555252sfdffffeew4847rtysdfsdfcxzgbgbdssd
-- ⚡ Fun fact: ...refer45dewghnnhgcxwerf
+- ⚡ Fun fact: ...refer45dewghnnhgcxwer
 sdfdsf53hngxcxcasdsasdss
 xcvtm
 <!---ddd15345dsf
