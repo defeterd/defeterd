@@ -1,7 +1,7 @@
 26262htrhbgttrrtyfsdffgj- 👋 Hi, I’m @defeterd4747
 - 👀 I’m interested in ...dfgghhnb
 - 🌱 I’m currently learning ...45egdgfdf
-- 💞️ I’m looking to collaborate on ...45255hghjmhghgrty4474bxc62vccxcxxx,kj,kjj,j,werehgm
+- 💞️ I’m looking to collaborate on ...45255hghjmhghgrty4474bxc62vccxcxxx,kj,kjj,j,werehgmliokiol
 - 📫 How to reach me ...456669878bv59966qwe362263ewwjk,jkasdbnvqew85vvvvghnghnregdserbtrbg
 - 😄 Pronouns: ...1235dhf545555252sfdffffeew4847rtysdfsdfcxzgbgbdssdfdfddffgfgffdsdfdsfffsddddwretyuutyytu5925
 - ⚡ Fun fact: ...refer45dewghnnhgcxwervbn
